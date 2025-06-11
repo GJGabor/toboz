@@ -1,2 +1,0 @@
-# toboz
-Flat for sale
